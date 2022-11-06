@@ -1,5 +1,7 @@
 Hi There ! 
 
+Pre-note: Please see my "How I Work with - Fathan" on this website https://fathanfi.com/how-i-work-with-fathan/
+
 Welcome to my team. You must be very good at your job, otherwise you wouldn't be here with me :)
 
 This document is intended to fasten up our relationship and set expectation from early stage. Mind you that this is a living document where i'll always try to improve myself based on your feedback. 
